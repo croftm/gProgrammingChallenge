@@ -1,0 +1,2 @@
+Not_Not_A_Robots Attempt at /g/'s proggramming challenge.
+https://camo.githubusercontent.com/f86232d9b7dbfd3860e3d634c782d742d085bdcb/68747470733a2f2f696d6775722e636f6d2f4f5136423669722e706e67
